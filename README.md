@@ -6,6 +6,7 @@ Anikkha Sandriana M. Verdejo
 # **ALBUMS**
 - ## [Border : Day One](https://open.spotify.com/album/3YxF7jTnpdNepWbO42f8lH?si=qsn7zmUUQliFsjPWsMmyIQ)
 - ## [Border : Carnival](https://open.spotify.com/album/4LGYBcRsteiXjcPD4QQvxv?si=s85iETCFTEer7WnkyCjCzg)
+- ## [Border : 儚い](https://open.spotify.com/album/05UNmVxVeG3XwkfrcXls5g?si=tkL25SwKTemuQvF0fJq2Cg)
 - ## [Dimension : Dillema](https://open.spotify.com/album/5jGRqioNCSWZGBl3QmyuFI?si=CdkLwOzVRvORgI6nQhIpaw)
 - ## [Dimension : Answer](https://open.spotify.com/album/3nOj9hsnptBEDt9ie2lra5?si=7bIffT4ZRtW6JLNlU9kEBA)
 - ## [Manifesto : Day 1](https://open.spotify.com/album/5J8MNLLViH5zqM6VoGErz8?si=4vHzW0D6RLOv1K7-CCwdXw)
