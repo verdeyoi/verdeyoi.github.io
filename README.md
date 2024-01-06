@@ -21,9 +21,7 @@ Anikkha Sandriana M. Verdejo
 | November 20, 2023 | EN-Connect: Companion | South Korea | VenewLive |
 | December 3, 2022 | BYS X ENHYPEN | Philippines | Smart Araneta Coliseum |
 ## **AWARDS RECEIVED**
-## 1. Asia Artist Awards (2021)
-   ### - Rookie of the Year
-   ### - Best Artist Award
-## 2. Asian Pop Music Awards (2021)
-   ### - Best New Artist (overseas)
-## 3.
+| Award ceremony | Year | Category | Nominee(s)/Work(s) |
+|  --------------- | ------------- | --------- | -------- |
+| Asia Artist Award | 1 | Rookie of the Year- Music | ENHYPEN |
+| ^ | ^ | Rookie of the Year- Music | ENHYPEN |
