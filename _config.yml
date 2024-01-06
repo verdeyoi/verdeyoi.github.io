@@ -1,1 +1,7 @@
 theme: jekyll-theme-midnight
+{
+  "plugins": ["table-cell-merge"]
+}
+$ gitbook install
+$ npm install --save gitbook-plugin-table-cell-merge
+$ npm install --save Cheerio
