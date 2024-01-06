@@ -7,7 +7,7 @@ The name Enhypen was introduced during the live broadcast of the final episode o
 # **MEMBERS**
 - Heeseung (희승), korean and ace of the group
 - Jay (제이), american
-- Jake (제이크), australian
+- Jake (제이크)
 - Sunghoon (성훈), korean
 - Sunoo (선우), korean
 - Jungwon (정원) — leader, korean
