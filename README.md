@@ -14,14 +14,20 @@ Anikkha Sandriana M. Verdejo
 ## **FAN MEETS AND WORLD TOURS**
 1. ### MANIFESTO World Tour (2022-2023)
 2. ### Fate World Tour (2023-2024)
-| Date | Event name | Country | Venue |
-| ----------- | ----------- | ------- | ---------|
-| February 6-7, 2021 | EN-Connect | South Korea | Bluesquare Mastercard Hall, VenewLive |
-| November 19, 2021 | EN-Connnect: Companion | South Korea | KBS Arena Hall, VenewLive |
-| November 20, 2023 | EN-Connect: Companion | South Korea | VenewLive |
-| December 3, 2022 | BYS X ENHYPEN | Philippines | Smart Araneta Coliseum |
+ Enhypen held their first fan meet on February 6-7, 2021 in Bluesquare Mastercard Hall, South Korea. This first fan meeting was memorable for Enhypen as well as the fans who attended, that was held 2 months and 8 days after their debut. Second fan meet was held on two different location but same theme called "EN-Connect: Companion" in South Korea. Lastly, the most recent fan meet was held in Quezon City, Philippines. This fan meet was also memorable because it was the group's first time to meet Filipino engenes and go to the Philippines. Almost all filo-engenes was mesmerized by Enhypen's handsome and angelic voice, they are thankful for BYS Philippines too for bringing Enhypen in this country.
 ## **AWARDS RECEIVED**
-| Award ceremony | Year | Category | Nominee(s)/Work(s) |
-|  --------------- | ------------- | --------- | -------- |
-| Asia Artist Award | 1 | Rookie of the Year- Music | ENHYPEN |
-| ^ | ^ | Rookie of the Year- Music | ENHYPEN |
+In the year 2021, Asia Artist Awards (AAA) gave Enhypen a "Rookie of the Year-Music" and "Best Artist-Music" awards. On the same year, they received an "Best New Artist(overseas)" award given by Asian Pop Artist Awards. 2020, when they released tha album 'Border: Day One' and received an "New Artist of the Year-Physical" award. Followed by "World Rookie of the Year" and "Hot Performance of the Year" awards that were given by Circle Chart Music Awards. While Hanteo Music Awards gave them Artist of the Year award (Bonsang) in the year 2023 and the album "Dimension: Dillema" an Initial Chodong Award (2021). Year 2022, the album "Border Carnical" won the *Main Prize(Bonsang)* award given by Seoul Music Awards.
+
+The following are awards that were received from year 2020-2023, given by different award shows
+- New Artist of the Year (Asia)
+- Best 3 New Artist (Asia)
+- Special International Music Award
+- *K Global Bonsang (Main Prize)*
+- K Global Best Performance Award
+- Global Rising Artist Award
+- 1theK Global Icon
+- Best Male New Artist
+- Worldwide Fans' Choice Top 10 (2021-2023)
+- Best Performance Award
+- Next Leader Award
+- *2021 Artist of the Year Award (Bonsang)*
