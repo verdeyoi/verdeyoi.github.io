@@ -2,6 +2,16 @@ Anikkha Sandriana M. Verdejo
 # **ENHYPEN**
 ### Enhypen is a K-pop group debuted on December 30, 2020. This group is composed of 7 members: Heeseung, Jay, Jake, Sunghoon, Sunoo, Jungwon, and Ni-ki. They're formed through survival show called "I-land". 
 ![Enhypen](https://tse1.mm.bing.net/th?id=OIP.T0KIuAw3QwwD5hHUGjK2pQHaFm&pid=Api&P=0&h=180)
+# **NAME**
+The name Enhypen was introduced during the live broadcast of the final episode of I-Land. Etymologically, the group derives their name from the hyphen symbol (-), representing "Connection, Discovery, & Growth".[4] Similar to how a hyphen connects different words to create new meanings, Enhypen aims "to come together to connect, discover and grow together to form a new act"
+# **MEMBERS**
+- Heeseung (희승), korean and ace of the group
+- Jay (제이), american
+- Jake (제이크), australian
+- Sunghoon (성훈), korean
+- Sunoo (선우), korean
+- Jungwon (정원) — leader, korean
+- Ni-ki (니키), japanese
 # **ALBUMS**
 - ## [Border : Day One](https://open.spotify.com/album/3YxF7jTnpdNepWbO42f8lH?si=qsn7zmUUQliFsjPWsMmyIQ)
 - ## [Border : Carnival](https://open.spotify.com/album/4LGYBcRsteiXjcPD4QQvxv?si=s85iETCFTEer7WnkyCjCzg)
