@@ -18,7 +18,7 @@ Anikkha Sandriana M. Verdejo
 ## **AWARDS RECEIVED**
 In the year 2021, Asia Artist Awards (AAA) gave Enhypen a "Rookie of the Year-Music" and "Best Artist-Music" awards. On the same year, they received an "Best New Artist(overseas)" award given by Asian Pop Artist Awards. 2020, when they released tha album 'Border: Day One' and received an "New Artist of the Year-Physical" award. Followed by "World Rookie of the Year" and "Hot Performance of the Year" awards that were given by Circle Chart Music Awards. While Hanteo Music Awards gave them Artist of the Year award (Bonsang) in the year 2023 and the album "Dimension: Dillema" an Initial Chodong Award (2021). Year 2022, the album "Border Carnical" won the *Main Prize(Bonsang)* award given by Seoul Music Awards.
 
-The following are awards that were received from year 2020-2023, given by different award shows
+The following are awards that were received from year 2020-2023, given by different award shows:
 - New Artist of the Year (Asia)
 - Best 3 New Artist (Asia)
 - Special International Music Award
